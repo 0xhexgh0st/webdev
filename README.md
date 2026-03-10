@@ -1,8 +1,2 @@
-Alpha \
-ldfkhd
-
-slkdhjsjhd
-ncsncknsd
-kdnbcjbnd
-nlkdsnfs
+all ai fil here
 
